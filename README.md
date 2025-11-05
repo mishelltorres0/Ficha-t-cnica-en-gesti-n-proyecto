@@ -1,1 +1,0 @@
-# Ficha-t-cnica-en-gesti-n-proyecto
